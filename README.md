@@ -1,1 +1,1 @@
-i do kotlin & android, sometimes some web with tailwind & react. For fun i do python and c++
+I'm just a regular everyday normal motherfucker, told ya in the first song i'll tell you in anotha !
